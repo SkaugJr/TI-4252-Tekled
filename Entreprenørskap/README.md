@@ -1,3 +1,3 @@
-## Tilbakemelding / Vurdering
+### Tilbakemelding / Vurdering
 
 Problemet er grundig og klart beskrevet med henvisninger til relevante kilder. Løsningen som foreslås, demonstrerer kreativitet, og det er tydelig at det er gjort omfattende arbeid med å analysere muligheter og utforske markedet. Illustrasjonene bidrar til å berike presentasjonen, og språket er gjennomgående presist og godt formulert. Detaljert kontaktlogg og dere har snakket med flere. Kontaktloggen gir detaljert innsikt i prosessen og dialogene som har funnet sted. Videre blir finansieringsbehovet og produktets bærekraft drøftet på en reflektert måte, mens det utarbeidede budsjettet gir en oversiktlig fremstilling av prosjektets økonomi. Presentasjonen av forretningsmodellen er både god og kreativ. A
